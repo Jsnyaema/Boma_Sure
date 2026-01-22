@@ -1,6 +1,6 @@
 # Boma-Sure: Digital Legacy Vault & Succession Platform
 
-**Team**: Daraja Nexus | **Category**: WealthTech / Social Impact | **Theme**: Digital Inheritance & Generational Wealth Preservation
+**Team**: Daraja Nexus 
 
 ---
 
